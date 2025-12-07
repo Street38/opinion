@@ -23,6 +23,5 @@
 
 ---
 
-[🍭 kAramelniy 🍭](https://t.me/kAramelniy)
 
 ---
